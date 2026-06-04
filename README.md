@@ -86,6 +86,6 @@ This portfolio showcases expertise across multiple domains:
 
 ## 📞 Get in Touch
 
-Jayce Chong 6018-9888295 (whatsapp).
-JayceChong92 (telegram)
-garethtjk@gmail.com (e-mail)
+- Jayce Chong 6018-9888295 (whatsapp).
+- JayceChong92 (telegram)
+- garethtjk@gmail.com (e-mail)
