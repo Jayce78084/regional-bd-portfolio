@@ -86,4 +86,6 @@ This portfolio showcases expertise across multiple domains:
 
 ## 📞 Get in Touch
 
-For inquiries about partnerships, collaborations, or consulting opportunities, please reach out via GitHub.
+Jayce Chong 6018-9888295 (whatsapp).
+JayceChong92 (telegram)
+garethtjk@gmail.com (e-mail)
